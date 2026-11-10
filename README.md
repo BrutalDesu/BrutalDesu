@@ -66,7 +66,7 @@ English (Professional Working) · Hindi (Native) · German & Japanese (Elementar
 
 **[brutal.desu.dev@gmail.com](mailto:brutal.desu.dev@gmail.com)** · **[LinkedIn](https://www.linkedin.com/in/abhay-patel-b697a2433/)** · **[GitHub](https://github.com/BrutalDesu)**
 
-📍 Madhya Pradesh, India — open to global remote roles & international relocation
+📍 Madhya Pradesh, India — open to global remote roles & international relocation (Netherlands, Germany, Ireland, Portugal, Spain, Canada, Singapore, UAE, Japan)
 
 ---
 
